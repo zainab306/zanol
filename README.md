@@ -1,0 +1,2 @@
+# zanol
+no think
